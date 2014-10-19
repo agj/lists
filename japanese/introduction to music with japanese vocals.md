@@ -1,7 +1,7 @@
 Japanese music with Japanese vocals. Albums, sorted by genre and in reverse chronological order.
 
 
-##Rock
+## Rock
 
 - ねごと「ex Negoto」/ Negoto "Ex Negoto" (2011, alt rock) [listen](http://www.youtube.com/watch?v=O4COoSr9eQ0)
 - あふりらんぽ「WE ARE UCHU NO KO」/ Afrirampo "We are uchu no ko" (2010, noise rock) [listen](http://www.youtube.com/watch?v=kt46kXShfPY)
@@ -38,7 +38,7 @@ Japanese music with Japanese vocals. Albums, sorted by genre and in reverse chro
 
 
 
-##Hip-hop
+## Hip-hop
 
 - FLA$HBACKS「FL$8KS」(2013, hip-hop) [listen](http://www.youtube.com/watch?v=7siZEyL2vII)
 - THE OTOGIBANASHI'S「TOY BOX」(2013, hip-hop) [listen](http://www.youtube.com/watch?v=MGjQr1VxETU)
@@ -62,7 +62,7 @@ Japanese music with Japanese vocals. Albums, sorted by genre and in reverse chro
 
 
 
-##Electronica, pop, jazz, miscellaneous
+## Electronica, pop, jazz, miscellaneous
 
 - salyu × salyu「s(o)un(d)beams」(2011, pop) [listen](http://www.youtube.com/watch?v=ICIP9gHP7F0)
 - Perfume「GAME」(2008, technopop) [listen](http://www.youtube.com/watch?v=KbiSxunJatM)
@@ -89,7 +89,7 @@ Japanese music with Japanese vocals. Albums, sorted by genre and in reverse chro
 
 
 
-##Links
+## Links
 
 - [Landoldt-C's Recommended CDs: Japanese Popular Music.](http://www001.upp.so-net.ne.jp/tsuribe/CDs/jpope.html)
 - [Rolling Stone Japan's 100 Greatest Japanese Rock Albums.](http://neojaponisme.com/2007/11/09/100-greatest-japanese-rock-albums/)
