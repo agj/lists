@@ -5,11 +5,11 @@ Found at AllZine.
 * MANDALA (1981), dir. Im Kwon-taek (10 votes)
 * ✔ PEPPERMINT CANDY (1999), dir. Lee Chang-dong (9 votes)
 
-* ====
+* ...
   * ✔ THE DAY A PIG FELL INTO THE WELL (1996), dir. Hong Sang-soo
   * SOPYONJE (1993), dir. Im Kwon-taek
 
-* ====
+* ...
   * THE LOVERS OF WOOMOOK-BAEMI (1990), dir. Jang Sun-woo
   * ✔ CHRISTMAS IN AUGUST (1998), dir. Hur Jin-ho
   * FINE WINDY DAY (1980), dir. Lee Jang-ho
@@ -19,7 +19,7 @@ Found at AllZine.
   * THE ROAD TO SAMPO (1975), dir. Lee Man-hee
   * ✔ WHY HAS BODHI-DHARMA LEFT FOR THE EAST? (1989), dir. Bae Yong-gyun
 
-* ====
+* ...
   * THE POWER OF KANGWON PROVINCE (1998), dir. Hong Sang-soo
   * ✔ JOINT SECURITY AREA (2000), dir. Park Chan-wook
   * GUIRO (1967), dir. Lee Man-hee
@@ -29,13 +29,13 @@ Found at AllZine.
   * MIST (1967), dir. Kim Soo-yong
   * JJAKKO (1980), dir. Im Kwon-taek
 
-* ====
+* ...
   * ARIRANG (1926), dir. Na Un-gyu
   * LATE AUTUMN (1966), dir. Lee Man-hee
   * MARCH OF FOOLS (1975), dir. Ha Kil-jong
   * CHUNHYANG (1999), dir. Im Kwon-taek
 
-* ====
+* ...
   * ✔ TAKE CARE OF MY CAT (2001), dir. Jeong Jae-eun
   * GILSOTTEUM (1985), dir. Im Kwon-taek
   * DEEP BLUE NIGHT (1984), dir. Bae Chang-ho

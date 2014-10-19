@@ -10,7 +10,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 8. Tange Sazen and the Pot Worth a Million Ryo (1935, S. Yamanaka)
 9. The Man Who Stole the Sun (1979, Kazuhiko Hasegawa) (soundtrack)
 10. ✔ Family game (1983, Yoshimitsu Morita)
-
 11. Stray Dog (1949, Akira Kurosawa)
 12. Typhoon Club (1984, Shinji Somai)
 13. ✔ Ikiru (1952, Akira Kurosawa)
@@ -21,7 +20,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 18. Intentions of Murder (1964, Shohei Imamura)
 19. Tokyo Olympiad (1965, Kon Ichikawa)
 20. The Castle of Sand (1974, Yoshitaro Nomura) (trailer)
-
 21. Failed Youth (1974, Tatsumi Kumashiro)
 22. ✔ Nausicaa (1984, Hayao Miyazaki)
 23. Humanity and Paper Balloons (1937, Sadao Yamanaka)
@@ -32,8 +30,7 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 28. ✔ Tales of Ugetsu (1953, Kenji Mizoguchi)
 29. The Crucified Lovers (1954, Kenji Mizoguchi)
 30. She Was Like a Wild Chrysanthemum (1955, Keisuke Kinoshita)
-
-31. Flowing (1956, Mikio Naruse)
+31. 31. Flowing (1956, Mikio Naruse)
 32. Samurai Vendetta (1959, Kazu Mori) (trailer)
 33. ✔ Branded to Kill (1967, Seijun Suzuki)
 34. Vengeance is mine (1979, Shohei Imamura)
@@ -43,7 +40,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 38. ✔ Late Spring (1949, Yasujiro Ozu) (new)
 39. Till We Meet Again (1950, Tadashi Imai)
 40. ✔ The Life Of Oharu (1952, Kenji Mizoguchi)
-
 41. A Bloody Spear at Mount Fuji (1955, Tomu Uchida)
 42. The Lower Depths (1957, Akira Kurosawa)
 43. The Chaser (1958, Yoshitaru Nomura) (trailer)
@@ -54,7 +50,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 48. Cruel Story of Youth (1960, Nagisa Oshima)
 49. The Graceful Brute (1962, Yuzo Kawashima)
 50. Proxy War (1973, Kinji Fukasaku)
-
 51. The Wanderers (1973, Kon Ichikawa)
 52. The Youth Killer (1976, Kazuhiko Hasegawa)
 53. Muddy River (1981, Kohei Oguri)
@@ -65,7 +60,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 58. Noriko’s Dinner Table (2005, Sion Sono)
 59. I was born, but… (1932, Yasujiro Ozu)
 60. What did the lady forget? (1937, Yasujiro Ozu)
-
 61. Singing Lovebirds (1939, Masahiro Makino)
 62. The Live of Matsu the Untamed (1943, Hiroshi Inagaki)
 63. Carmen comes home (1951, Keisuke Kinoshita)
@@ -76,7 +70,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 68. Pale Flower (1964, Masahiro Shinoda)
 69. Yearning (1964, Mikio Naruse)
 70. ✔ Tokyo Drifter (1966, Seijun Suzuki)
-
 71. Japan’s Longest Day (1967, Kihachi Okamoto)
 72. The Profound Desire of the Gods (1968, S. Imamura) (trailer)
 73. The Human Bullet (1968, Kihachi Okamoto) (trailer)
@@ -87,7 +80,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 78. Tora-san (1969-95, Yoji Yamada) (trailer)
 79. Take Care, Red Riding Hood (1970, Shori Moritani)
 80. Red Peony Gambles Her Life (1970, Tai Kato)
-
 81. Kaoyaku (1971, Shintaro Katsu)
 82. Wet Sand in August (1971, Toshiya Fujita)
 83. Three Mad Dog Brothers (1972, Kinji Fukasaku)
@@ -98,7 +90,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 88. Crazed Fruit (1981, Kichitaro Negishi)
 89. A Japanese Village, Furuyashikimura (1982, Shinsuke Ogawa)
 90. P. P. Rider (1983, Shinji Somai)
-
 91. Merry Christmas Mr. Lawrence (1983, Nagisa Oshima)
 92. The Girl Who Leapt Through Time (1983, Nobuhiko Obayashi)
 93. Love Hotel (1985, Shinji Somai)
@@ -109,7 +100,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 98. Moving (1993, Shinji Somai)
 99. ✔ Sonatine (1993, Takeshi Kitano)
 100. Kids Return (1996, Takeshi Kitano)
-
 101. Crazyon Shin-chan (2001, Tsutomu Mizushima)
 102. The Twilight Samurai (2002, Yoji Yamada)
 103. Bright Future (2003, Kiyoshi Kurosawa)
@@ -120,7 +110,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 108. Sisters of the Gion (1936, Kenji Mizoguchi)
 109. Story of the Last Chrysantemum (1939, Kenji Mizoguchi)
 110. Sanshiro Sugata (1943, Akira Kurosawa)
-
 111. Ware Maboroshi No Sakana O Mitari (1950, Daisuke Ito)
 112. Early Summer (1951, Yasujiro Ozu)
 113. Lightning (1952, Mikio Naruse)
@@ -131,7 +120,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 118. Crazed Fruit (1956, Ko Nakahira)
 119. ✔ Throne of Blood (1957, Akira Kurosawa)
 120. Tokyo Twilight (1957, Yasujiro Ozu)
-
 121. Washi to Taka (1957, Umetsugu Inoue)
 122. Enjo (1958, Kon Ichikawa)
 123. The Hidden Fortress (1958, Akira Kurosawa)
@@ -142,7 +130,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 128. Ten Dark Woman (1961, Kon Ichikawa)
 129. The Last War (1961, Shue Matsubayashi)
 130. A Wife Confesses (1961, Yasuzo Masumura
-
 131. Foundry Town (1962, Kiriro Urayama)
 132. Destiny’s Son (1962, Kenji Misumi)
 133. The Outcast (1962, Kon Ichikawa)
@@ -153,7 +140,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 138. Seisaku’s Wife (1965, Yasuzo Masumura)
 139. Story of a Prostitute (1965, Seijun Suzuki)
 140. The Hitman (1967, Kazuo Mori)
-
 141. Like a Shooting Star (1967, Toshio Masuda)
 142. ✔ A Colt Is My Passport (1967, Takashi Nomura)
 143. Tora-san: It’s Tough Being A Man (1969, Yoji Yamada)
@@ -164,7 +150,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 148. Minata (1972, Noriaki Tsuchimoto)
 149. The Morning Schedule (1972, Susumu Hani)
 150. Night of the Felines (1972, Noboru Tanaka)
-
 151. Akai Tori Nigeta? (1973, Toshiya Fujita)
 152. Tora-san’s Forget Me Not (1973, Yoji Yamada)
 153. Narita: Heta Village (1973, Shinsuke Ogawa)
@@ -175,7 +160,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 158. ✔ In The Realm of the Senses (1976, Nagisa Oshima)
 159. Lullaby of the Earth (1976, Yasuzo Masumura)
 160. ✔ House (1970, Nobuhiko Obayashi)
-
 161. The Devil’s Boucing Ball Song (1977, Kon Ichikawa)
 162. Shinjuku midaregai: Ikumade matte (1977, Chusei Sone)
 163. Mount Hakkoda (1977, Shiro Moritani)
@@ -186,7 +170,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 168. Attacked Women (1981, Banmei Takahash)
 169. Angel Guts: Red Prono (1981, Toshiharu Ikeda)
 170. Something Like It (1981, Yoshimitsu Morita)
-
 171. The Imperial Navy (1981, Shue Matsubayashi)
 172. Transfer Student (1982, Nobuhiko Obayashi)
 173. ✔ Burst City (1982, Sogo Ishii)
@@ -197,7 +180,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 178. ✔ The Sting of Death (1990, Kohei Oguri)
 179. ✔ A Scene at the Sea (1991, Takeshi Kitano)
 180. The Rocking Horsemen (1992, Nobuhiko Obayashi)
-
 181. Tetsuo 2 (1992, Shinya Tsukamoto)
 182. Where is the Moon? (1993, Yoichi Sai)
 183. Shall We Dance? (1996, Masayuki Suo)
@@ -208,7 +190,6 @@ http://wildgrounds.com/index.php/2010/02/26/kinema-junpos-top-japanese-films-200
 188. Swing Girls (2004, Shinobu Yaguchi)
 189. ✔ Nobody Knows (2004, Hirokazu Koreeda)
 190. The Reason (2004, Nobuhiko Obayashi)
-
 191. Break Through! (2004, Kazuyuki Izutsu)
 192. Who’s Camus Anyway? (2005, Mitsuo Yanagimachi)
 193. Memories of Matsuko (2006, Tetsuya Nakashima)
