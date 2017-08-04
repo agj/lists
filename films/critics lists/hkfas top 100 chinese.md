@@ -1,3 +1,4 @@
+
 In 2005, the Hong Kong Film Awards released their list of [the best chinese movies](http://www.monkeypeaches.com/050316A.html). I plan to watch as many of these as I can, so I'll be ticking them off here.
 
 * ✔ Spring in a small town (Fei Mu; 1948)
@@ -8,7 +9,7 @@ In 2005, the Hong Kong Film Awards released their list of [the best chinese movi
 * ✔ Long arm of the law (Johnny Mak; 1984)
 * ✔ Dragon inn (King Hu; 1967)
 * ✔ Boat people (Ann Hui; 1982)
-* A touch of zen (King Hu; 1971)
+* ✔ A touch of zen (King Hu; 1971)
 * ✔ Crouching tiger, hidden dragon (Ang Lee; 2000)
 * Street angel (Yian Mu-jih; 1937)
 * ✔ A brighter summer day (Edward Yang; 1991)
@@ -40,7 +41,7 @@ In 2005, the Hong Kong Film Awards released their list of [the best chinese movi
 * Liang Shan-po and Chu Ying-t'ai (Li Han-hsiang; 1963)
 * The story of a discharged prisoner (Lung Kong; 1967)
 * Zu warriors (Tsui Hark; 1983)
-* The terrorizer (Edward Yang: 1986)
+* ✔ The terrorizer (Edward Yang: 1986)
 * The killer (John Woo; 1989)
 * Once upon a time in China (Tsui Hark; 1991)
 * ✔ The actress (Stanley Kwan; 1992)
