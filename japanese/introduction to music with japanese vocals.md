@@ -12,28 +12,28 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
   **Afrirampo** "We are uchu no ko"
 - **住所不定無職**「ベイビー！キミのビートルズはボク!!!」 (2010, lo-fi, pop, rock & roll) [🎧](http://www.youtube.com/watch?v=TdfwRTFYqSs)  
   **Juusho Futei Mushoku** "Baby! Kimi no Beatles wa boku!!!"
-- **神聖かまってちゃん**「友だちを殺してまで」⭐ (2010, noise pop) [🎧](http://www.youtube.com/v/Yl4AJytXV-8)  
+- **神聖かまってちゃん**「友だちを殺してまで」⭐ (2010, noise pop) [🎧](https://www.youtube.com/watch?v=LXdQqP5ogmE)  
   **Shinsei Kamattechan** "Tomodachi o koroshite made"
-- **相対性理論**「ハイファイ新書」⭐️ (2009, rock, pop) [🎧](http://www.youtube.com/watch?v=ZKXig38I5B0)  
+- **相対性理論**「ハイファイ新書」⭐️ (2009, rock, pop) [🎧](https://www.youtube.com/watch?v=Atc0ERea7nE)  
   **Soutaisei Riron** "Hi-fi shinsho"
 - **つしまみれ**「あっ、海だ。」 (2009, alt rock) [🎧](http://www.youtube.com/watch?v=VArdmWLNwP0)  
   **Tsushimamire** "Ah, umi da."
 - **MOLICE**「DOCTOR RAY」 (2008, rock, new wave) [🎧](http://www.youtube.com/watch?v=6fYYTD0dQOo)
-- **OGRE YOU ASSHOLE**「アルファベータ vs. ラムダ」 (2007, post-punk revival) [🎧](http://www.youtube.com/watch?v=8bp99mF6-Ow)  
+- **OGRE YOU ASSHOLE**「アルファベータ vs. ラムダ」 (2007, post-punk revival) [🎧](https://www.youtube.com/watch?v=j3ZyZeEAUqc&list=PLobmBdZRxCQOm_U-x7SF6V00L2np4z6C6)  
   **Ogre You Asshole** "Alphabeta vs. Lambda"
-- **ASIAN KUNG-FU GENERATION**「ファンクラブ」 (2006, alt rock) [🎧](http://www.youtube.com/watch?v=7hxXvltZzto)  
+- **ASIAN KUNG-FU GENERATION**「ファンクラブ」 (2006, alt rock) [🎧](https://www.letras.com/asian-kung-fu-generation/discografia/fanclub-2006/)  
   **Asian Kung-Fu Generation** "Fanclub"
 - **チャットモンチー**「耳鳴り」⭐️ (2006, alt rock) [🎧](http://www.youtube.com/watch?v=VmSXA3XExu0)  
   **Chatmonchy** "Miminari"
 - **envy**「a dead sinking story」 (2006, post-hardcore, screamo, post-rock) [🎧](http://www.youtube.com/watch?v=yZsTGjddN0E)
 - **MONGOL800**「Daniel」(2006, pop punk) [🎧](https://www.youtube.com/watch?v=Oh0T6uxmoZA)
-- **BORIS**「PINK」⭐️ (2005, noise rock, stoner rock, doom metal) [🎧](http://www.youtube.com/watch?v=1CjsaFBQA1Q)
-- **ZAZEN BOYS**「ZAZEN BOYS II」⭐️ (2004, fusion rock) [🎧](http://www.youtube.com/watch?v=tarubGd6mgg)
+- **BORIS**「PINK」⭐️ (2005, noise rock, stoner rock, doom metal) [🎧](https://www.youtube.com/watch?v=Wj3EFzNwhxM)
+- **ZAZEN BOYS**「ZAZEN BOYS II」⭐️ (2004, fusion rock) [🎧](https://www.youtube.com/watch?v=9Qy7-LPvlrs)
 - **Luminous Orange**「Drop you vivid colors」 (2002, rock, shoegaze) [🎧](http://www.youtube.com/watch?v=6Oqgo8A5uNU)
 - **SUPERCAR**「HIGHVISION」(2002, alt rock, electronica) [🎧](http://www.youtube.com/watch?v=xpbapQmrKTs)
 - **POLYSICS**「ENO」️ (2001, new wave) [🎧](http://www.youtube.com/watch?v=bxr87GMtYNk)
 - **NUMBER GIRL**「SCHOOL GIRL DISTORTIONAL ADDICT」 (1999, post-hardcore) [🎧](http://www.youtube.com/watch?v=7dIYgrWtoU4)
-- **bloodthirsty butchers**「kocorono」⭐️ (1996, post hardcore) [🎧](http://www.youtube.com/watch?v=t7ukfy6iFSk)
+- **bloodthirsty butchers**「kocorono」⭐️ (1996, post hardcore) [🎧](https://www.youtube.com/watch?v=Qg5NM1jLr5A)
 - **ロリータ１８号**「カラテの先生」 (1995, punk) [🎧](http://www.youtube.com/watch?v=WC61wdtrEUU)  
   **Lolita No. 18** "Karate no sensei"
 - **JUDY AND MARY**「ORANGE SUNSHINE」 (1994, rock, punk, pop) [🎧](http://www.youtube.com/watch?v=e8yechVpk10)
@@ -58,7 +58,7 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
   **Murahachibu** "Live"
 - **頭脳警察**「頭脳警察１」 (1972, rock, protest song) [🎧](http://www.youtube.com/watch?v=8-oMvTk0SAo)  
   **Zunou Keisatsu a.k.a. Brain Police** "Zunou Keisatsu 1"
-- **はっぴいえんど**「風街ろまん」⭐️ (1971, folk rock) [🎧](http://www.youtube.com/watch?v=wEuaZ8k5S5M)  
+- **はっぴいえんど**「風街ろまん」⭐️ (1971, folk rock) [🎧](https://www.youtube.com/watch?v=EZQQlzCqqNs)  
   **Happy End** "Kazemachi roman"
 
 
@@ -88,7 +88,7 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 - **Loop Junktion**「Ties」 (2002, hip-hop, acid jazz) [🎧](https://www.youtube.com/watch?v=oDFcESlWKc8)
 - **SOUL SCREAM**「The positive gravity ～案とヒント～」 (1999, hip-hop) [🎧](http://www.youtube.com/watch?v=p6zG1T6w0IA)  
   **Soul Scream** "The positive gravity: An to hinto"
-- **四街道ネイチャー**「V・I・C・トゥモロー」⭐️ (1998, hip-hop) [🎧](http://www.youtube.com/watch?v=BHyzRkNl4JM&list=PL9B18E0A4A76D96AE)  
+- **四街道ネイチャー**「V・I・C・トゥモロー」⭐️ (1998, hip-hop) [🎧](https://www.youtube.com/watch?v=6vVAje3XKXk)  
   **Yotsukaido Nature** "V.I.C. Tomorrow"
 - **SHAKKAZOMBIE**「HERO THE S.Z.」(1997, hip-hop) [🎧](http://www.youtube.com/watch?v=ElZ3l7s7R7A)
 - **スチャダラパー**「偶然のアルバム」⭐️ (1996, hip-hop) [🎧](http://nviewer.mobi/player?video_id=sm15873222)  
@@ -124,7 +124,7 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 - **椎名林檎**「勝訴ストリップ」 (2000, pop, rock) [🎧](http://www.youtube.com/watch?v=zldBTSx9JpE)  
   **Shiina Ringo** "Shouso strip"
 - **PIZZICATO FIVE**「PIZZICATO FIVE」(1999, Shibuya kei) [🎧](http://www.youtube.com/watch?v=sPzp1_155aI)
-- **CORNELIUS**「FANTASMA」⭐️ (1997, Shibuya-kei) [🎧](http://www.youtube.com/watch?v=_s_30x_d5bo)
+- **CORNELIUS**「FANTASMA」⭐️ (1997, Shibuya-kei) [🎧](https://www.youtube.com/watch?v=ymIYDOygec4)
 - **電気グルーヴ**「A」 (1997, techno, Shibuya-kei) [🎧](http://www.youtube.com/watch?v=aXFYGiVhH5Q)  
   **Denki Groove** "A"
 - **川本真琴**「川本真琴」 (1997, pop) [🎧](http://grooveshark.com/#!/s/1+2/6zpqJ8?src=5)  
