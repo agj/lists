@@ -101,6 +101,8 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 
 ## Electronica, pop, jazz, miscellaneous
 
+- **水曜日のカンパネラ**「ジパング」⭐ (2015, electronica, hip-hop) [🎧](https://www.youtube.com/playlist?list=OLAK5uy_lSZrQ-tLrHYc34QWTDdvmATeVWZnNV2nE)  
+  **Wednesday Campanella** "Zipangu"
 - **salyu × salyu**「s(o)un(d)beams」(2011, experimental pop) [🎧](https://www.youtube.com/watch?v=DChoNWcIbLw)
 - **SPECIAL OTHERS**「SPECIAL OTHERS」⭐ (2011, jazz, post-rock) [🎧](https://www.youtube.com/watch?v=-8zm9b2Ug0U)
 - **セラニポージ**「MERRY GO ROUND JAILHOUSE」(2010, pop, synth pop) [🎧](https://www.youtube.com/watch?v=i67SpsnMtyU)  
