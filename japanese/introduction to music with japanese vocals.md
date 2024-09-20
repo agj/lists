@@ -1,67 +1,45 @@
-
 Japanese music with Japanese vocals. Albums, sorted by genre and in reverse chronological order.
 
 Click 🎧 next to an album to hear a sample (many links broken—apologies). I like and recommend everything here listed, but ⭐️ indicates my personal top picks.
 
-
 ## Rock
 
-
-- **ねごと**『ex Negoto』 (2011, alt rock) [🎧](http://www.youtube.com/watch?v=O4COoSr9eQ0)  
-  **Negoto** “Ex Negoto”
-- **あふりらんぽ**『WE ARE UCHU NO KO』 (2010, noise rock) [🎧](http://www.youtube.com/watch?v=kt46kXShfPY)  
-  **Afrirampo** “We are uchu no ko”
-- **住所不定無職**『ベイビー！キミのビートルズはボク!!!』 (2010, lo-fi, pop, rock & roll) [🎧](http://www.youtube.com/watch?v=TdfwRTFYqSs)  
-  **Juusho Futei Mushoku** “Baby! Kimi no Beatles wa boku!!!”
-- **神聖かまってちゃん**『友だちを殺してまで』⭐ (2010, noise pop) [🎧](https://www.youtube.com/watch?v=LXdQqP5ogmE)  
-  **Shinsei Kamattechan** “Tomodachi o koroshite made”
-- **相対性理論**『ハイファイ新書』⭐️ (2009, rock, pop) [🎧](https://www.youtube.com/watch?v=Atc0ERea7nE)  
-  **Soutaisei Riron** “Hi-fi shinsho”
-- **つしまみれ**『あっ、海だ。』 (2009, alt rock) [🎧](http://www.youtube.com/watch?v=VArdmWLNwP0)  
-  **Tsushimamire** “Ah, umi da.”
-- **MOLICE**『DOCTOR RAY』 (2008, rock, new wave) [🎧](http://www.youtube.com/watch?v=6fYYTD0dQOo)
-- **OGRE YOU ASSHOLE**『アルファベータ vs. ラムダ』 (2007, post-punk revival) [🎧](https://www.youtube.com/watch?v=j3ZyZeEAUqc&list=PLobmBdZRxCQOm_U-x7SF6V00L2np4z6C6)  
-  **Ogre You Asshole** “Alphabeta vs. Lambda”
-- **ASIAN KUNG-FU GENERATION**『ファンクラブ』 (2006, alt rock) [🎧](https://www.letras.com/asian-kung-fu-generation/discografia/fanclub-2006/)  
-  **Asian Kung-Fu Generation** “Fanclub”
-- **チャットモンチー**『耳鳴り』⭐️ (2006, alt rock) [🎧](http://www.youtube.com/watch?v=VmSXA3XExu0)  
-  **Chatmonchy** “Miminari”
-- **envy**『a dead sinking story』 (2006, post-hardcore, screamo, post-rock) [🎧](http://www.youtube.com/watch?v=yZsTGjddN0E)
-- **MONGOL800**『Daniel』(2006, pop punk) [🎧](https://www.youtube.com/watch?v=Oh0T6uxmoZA)
-- **BORIS**『PINK』⭐️ (2005, noise rock, stoner rock, doom metal) [🎧](https://www.youtube.com/watch?v=Wj3EFzNwhxM)
-- **ZAZEN BOYS**『ZAZEN BOYS II』⭐️ (2004, fusion rock) [🎧](https://www.youtube.com/watch?v=9Qy7-LPvlrs)
-- **Luminous Orange**『Drop you vivid colors』 (2002, rock, shoegaze) [🎧](http://www.youtube.com/watch?v=6Oqgo8A5uNU)
-- **SUPERCAR**『HIGHVISION』(2002, alt rock, electronica) [🎧](http://www.youtube.com/watch?v=xpbapQmrKTs)
-- **POLYSICS**『ENO」️ (2001, new wave) [🎧](http://www.youtube.com/watch?v=bxr87GMtYNk)
-- **NUMBER GIRL**『SCHOOL GIRL DISTORTIONAL ADDICT』 (1999, post-hardcore) [🎧](http://www.youtube.com/watch?v=7dIYgrWtoU4)
-- **bloodthirsty butchers**『kocorono』⭐️ (1996, post hardcore) [🎧](https://www.youtube.com/watch?v=Qg5NM1jLr5A)
-- **ロリータ１８号**『カラテの先生』 (1995, punk) [🎧](http://www.youtube.com/watch?v=WC61wdtrEUU)  
-  **Lolita No. 18** “Karate no sensei”
-- **JUDY AND MARY**『ORANGE SUNSHINE』 (1994, rock, punk, pop) [🎧](http://www.youtube.com/watch?v=e8yechVpk10)
-- **不失者**『不失者』 (1989, noise rock, psychedelic rock) [🎧](http://www.youtube.com/watch?v=LLhdWZZWzWU)  
-  **Fushitsusha** “Fushitsusha”
-- **THE BLUE HEARTS**『THE BLUE HEARTS』 (1987, punk) [🎧](http://www.youtube.com/watch?v=PoMd3vrAOgc)
-- **少年ナイフ**『PRETTY LITTLE BAKA GUY』 (1986, punk pop, rock & roll) [🎧](http://www.youtube.com/watch?v=76BxG9At5Gg)  
-  **Shonen Knife** “Pretty little baka guy”
-- **ZELDA**『CARNAVAL』 (1983, rock, new wave) [🎧](http://www.youtube.com/watch?v=kl5sIt6u1xg)
-- **P-MODEL**『Perspective』 (1982, new wave) [🎧](http://www.youtube.com/watch?v=GW1e3KLyjzY)
-- **INU**『メシ喰うな！』 (1981, punk, new wave) [🎧](http://www.youtube.com/watch?v=yCfbzdd8QXk)  
-  **Inu** “Meshi kuuna!”
-- **ザ・スターリン**『trash』 (1981, punk) [🎧](http://www.youtube.com/watch?v=bCUt61MlHXg)  
-  **The Stalin** “Trash”
-- **サディスティック・ミカ・バンド**『黒船』 (1974, rock) [🎧](http://grooveshark.com/#!/s/-/4iK54n?src=5)  
-  **Sadistic Mika Band** “Kurofune”
-- **四人囃子**『一触即発』 (1974, progressive rock, psychedelic rock) [🎧](http://grooveshark.com/#!/s/Issoku+Sokuhatsu/6yXQSd?src=5)  
-  **Yonin Bayashi** “Isshokusokuhatsu”
-- **J・A・シーザー**『国境巡礼歌』 (1973, psychedelic rock) [🎧](http://www.youtube.com/watch?v=OEvFobOY2XU)  
-  **J.A. Seazer** “Kokkyou junrei uta”
-- **村八分**『ライブ』(1973, rock & roll) [🎧](https://www.youtube.com/watch?v=O8SuvuaVqfU)  
-  **Murahachibu** “Live”
-- **頭脳警察**『頭脳警察１』 (1972, rock, protest song) [🎧](http://www.youtube.com/watch?v=8-oMvTk0SAo)  
-  **Zunou Keisatsu a.k.a. Brain Police** “Zunou Keisatsu 1”
-- **はっぴいえんど**『風街ろまん』⭐️ (1971, folk rock) [🎧](https://www.youtube.com/watch?v=EZQQlzCqqNs)  
-  **Happy End** “Kazemachi roman”
-
+|     | Album                                                                                                                  | Year | Genre                               |                                                                                           |
+| --- | ---------------------------------------------------------------------------------------------------------------------- | ---- | ----------------------------------- | ----------------------------------------------------------------------------------------- |
+|     | **ねごと**『ex Negoto』 <br> **Negoto** “Ex Negoto”                                                                      | 2011 | alt rock                            | [🎧](http://www.youtube.com/watch?v=O4COoSr9eQ0)                                          |
+|     | **あふりらんぽ**『WE ARE UCHU NO KO』 <br> **Afrirampo** “We are uchu no ko”                                             | 2010 | noise rock                          | [🎧](http://www.youtube.com/watch?v=kt46kXShfPY)                                          |
+|     | **住所不定無職**『ベイビー！キミのビートルズはボク!!!』 <br> **Juusho Futei Mushoku** “Baby! Kimi no Beatles wa boku!!!” | 2010 | lo-fi, pop, rock & roll             | [🎧](http://www.youtube.com/watch?v=TdfwRTFYqSs)                                          |
+| ⭐️ | **神聖かまってちゃん**『友だちを殺してまで』 <br> **Shinsei Kamattechan** “Tomodachi o koroshite made”                   | 2010 | noise pop                           | [🎧](https://www.youtube.com/watch?v=LXdQqP5ogmE)                                         |
+| ⭐️ | **相対性理論**『ハイファイ新書』 <br> **Soutaisei Riron** “Hi-fi shinsho”                                                | 2009 | rock, pop                           | [🎧](https://www.youtube.com/watch?v=Atc0ERea7nE)                                         |
+|     | **つしまみれ**『あっ、海だ。』 <br> **Tsushimamire** “Ah, umi da.”                                                       | 2009 | alt rock                            | [🎧](http://www.youtube.com/watch?v=VArdmWLNwP0)                                          |
+|     | **MOLICE**『DOCTOR RAY』                                                                                               | 2008 | rock, new wave                      | [🎧](http://www.youtube.com/watch?v=6fYYTD0dQOo)                                          |
+|     | **OGRE YOU ASSHOLE**『アルファベータ vs. ラムダ』 <br> **Ogre You Asshole** “Alphabeta vs. Lambda”                       | 2007 | post-punk revival                   | [🎧](https://www.youtube.com/watch?v=j3ZyZeEAUqc&list=PLobmBdZRxCQOm_U-x7SF6V00L2np4z6C6) |
+|     | **ASIAN KUNG-FU GENERATION**『ファンクラブ』 <br> **Asian Kung-Fu Generation** “Fanclub”                                 | 2006 | alt rock                            | [🎧](https://www.letras.com/asian-kung-fu-generation/discografia/fanclub-2006/)           |
+| ⭐️ | **チャットモンチー**『耳鳴り』 <br> **Chatmonchy** “Miminari”                                                            | 2006 | alt rock                            | [🎧](http://www.youtube.com/watch?v=VmSXA3XExu0)                                          |
+|     | **envy**『a dead sinking story』                                                                                       | 2006 | post-hardcore, screamo, post-rock   | [🎧](http://www.youtube.com/watch?v=yZsTGjddN0E)                                          |
+|     | **MONGOL800**『Daniel』                                                                                                | 2006 | pop punk                            | [🎧](https://www.youtube.com/watch?v=Oh0T6uxmoZA)                                         |
+| ⭐️ | **BORIS**『PINK』                                                                                                      | 2005 | noise rock, stoner rock, doom metal | [🎧](https://www.youtube.com/watch?v=Wj3EFzNwhxM)                                         |
+| ⭐️ | **ZAZEN BOYS**『ZAZEN BOYS II』                                                                                        | 2004 | fusion rock                         | [🎧](https://www.youtube.com/watch?v=9Qy7-LPvlrs)                                         |
+|     | **Luminous Orange**『Drop you vivid colors』                                                                           | 2002 | rock, shoegaze                      | [🎧](http://www.youtube.com/watch?v=6Oqgo8A5uNU)                                          |
+|     | **SUPERCAR**『HIGHVISION』                                                                                             | 2002 | alt rock, electronica               | [🎧](http://www.youtube.com/watch?v=xpbapQmrKTs)                                          |
+|     | **POLYSICS**『ENO」️                                                                                                   | 2001 | new wave                            | [🎧](http://www.youtube.com/watch?v=bxr87GMtYNk)                                          |
+|     | **NUMBER GIRL**『SCHOOL GIRL DISTORTIONAL ADDICT』                                                                     | 1999 | post-hardcore                       | [🎧](http://www.youtube.com/watch?v=7dIYgrWtoU4)                                          |
+| ⭐️ | **bloodthirsty butchers**『kocorono』                                                                                  | 1996 | post hardcore                       | [🎧](https://www.youtube.com/watch?v=Qg5NM1jLr5A)                                         |
+|     | **ロリータ１８号**『カラテの先生』 <br> **Lolita No. 18** “Karate no sensei”                                             | 1995 | punk                                | [🎧](http://www.youtube.com/watch?v=WC61wdtrEUU)                                          |
+|     | **JUDY AND MARY**『ORANGE SUNSHINE』                                                                                   | 1994 | rock, punk, pop                     | [🎧](http://www.youtube.com/watch?v=e8yechVpk10)                                          |
+|     | **不失者**『不失者』 <br> **Fushitsusha** “Fushitsusha”                                                                  | 1989 | noise rock, psychedelic rock        | [🎧](http://www.youtube.com/watch?v=LLhdWZZWzWU)                                          |
+|     | **THE BLUE HEARTS**『THE BLUE HEARTS』                                                                                 | 1987 | punk                                | [🎧](http://www.youtube.com/watch?v=PoMd3vrAOgc)                                          |
+|     | **少年ナイフ**『PRETTY LITTLE BAKA GUY』 <br> **Shonen Knife** “Pretty little baka guy”                                  | 1986 | punk pop, rock & roll               | [🎧](http://www.youtube.com/watch?v=76BxG9At5Gg)                                          |
+|     | **ZELDA**『CARNAVAL』                                                                                                  | 1983 | rock, new wave                      | [🎧](http://www.youtube.com/watch?v=kl5sIt6u1xg)                                          |
+|     | **P-MODEL**『Perspective』                                                                                             | 1982 | new wave                            | [🎧](http://www.youtube.com/watch?v=GW1e3KLyjzY)                                          |
+|     | **INU**『メシ喰うな！』 <br> **Inu** “Meshi kuuna!”                                                                      | 1981 | punk, new wave                      | [🎧](http://www.youtube.com/watch?v=yCfbzdd8QXk)                                          |
+|     | **ザ・スターリン**『trash』 <br> **The Stalin** “Trash”                                                                  | 1981 | punk                                | [🎧](http://www.youtube.com/watch?v=bCUt61MlHXg)                                          |
+|     | **サディスティック・ミカ・バンド**『黒船』 <br> **Sadistic Mika Band** “Kurofune”                                        | 1974 | rock                                | [🎧](http://grooveshark.com/#!/s/-/4iK54n?src=5)                                          |
+|     | **四人囃子**『一触即発』 <br> **Yonin Bayashi** “Isshokusokuhatsu”                                                       | 1974 | progressive rock, psychedelic rock  | [🎧](http://grooveshark.com/#!/s/Issoku+Sokuhatsu/6yXQSd?src=5)                           |
+|     | **J・A・シーザー**『国境巡礼歌』 <br> **J.A. Seazer** “Kokkyou junrei uta”                                               | 1973 | psychedelic rock                    | [🎧](http://www.youtube.com/watch?v=OEvFobOY2XU)                                          |
+|     | **村八分**『ライブ <br> **Murahachibu** “Live”』                                                                         | 1973 | rock & roll                         | [🎧](https://www.youtube.com/watch?v=O8SuvuaVqfU)                                         |
+|     | **頭脳警察**『頭脳警察１』 <br> **Zunou Keisatsu a.k.a. Brain Police** “Zunou Keisatsu 1”                                | 1972 | rock, protest song                  | [🎧](http://www.youtube.com/watch?v=8-oMvTk0SAo)                                          |
+| ⭐️ | **はっぴいえんど**『風街ろまん』 <br> **Happy End** “Kazemachi roman”                                                    | 1971 | folk rock                           | [🎧](https://www.youtube.com/watch?v=EZQQlzCqqNs)                                         |
 
 ## Hip-hop
 
@@ -96,7 +74,6 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 - **TOKYO No.1 SOUL SET**『TRIPLE BARREL』(1995, hip-hop, pop) [🎧](http://www.youtube.com/watch?v=9BPXrEgP6Ek)
 - **EAST END×YURI**『denim-ed soul 2』(1990, hip-hop) [🎧](http://www.youtube.com/watch?v=JhF_HQRuufE)
 - **VIBRASTONE**『Vibra is Back』(1989, hip-hop, funk) [🎧](http://www.youtube.com/watch?v=fMmZiPZDX8k)
-
 
 ## Electronica, pop, jazz, miscellaneous
 
@@ -148,7 +125,6 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 - **浅川マキ**『浅川マキの世界』 (1970, jazz, blues) [🎧](http://www.youtube.com/watch?v=PMCSSMEYXjg)  
   **Asakawa Maki** “Asakawa Maki no sekai”
 
-
 ## Links
 
 - [Landoldt-C's Recommended CDs: Japanese Popular Music.](http://www001.upp.so-net.ne.jp/tsuribe/CDs/jpope.html)
@@ -157,4 +133,3 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 - [ジャパニーズHIP-HOPの歴史年表。](http://hiphopflava.net/article_histry_japanese.php)
 - [Japan Rockology.](http://japanrockology.wordpress.com/)
 - [ZB's A-Z of J-Music.](http://www.zbsatozofjmusic.com/)
-
