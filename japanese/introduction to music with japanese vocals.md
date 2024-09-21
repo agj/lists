@@ -105,9 +105,9 @@ Click 🎧 next to an album to hear a sample (many links broken—apologies). I 
 
 ## Links
 
-- [Landoldt-C's Recommended CDs: Japanese Popular Music.](http://www001.upp.so-net.ne.jp/tsuribe/CDs/jpope.html)
-- [Rolling Stone Japan's 100 Greatest Japanese Rock Albums.](http://neojaponisme.com/2007/11/09/100-greatest-japanese-rock-albums/)
-- [Japrocksampler.](http://www.japrocksampler.com/)
+- [Landoldt-C's Recommended CDs: Japanese Popular Music.](https://web.archive.org/web/20210126174015/https://www001.upp.so-net.ne.jp/tsuribe/CDs/jpope.html)
+- [Rolling Stone Japan's 100 Greatest Japanese Rock Albums.](http://web.archive.org/web/20230923140425/https://neojaponisme.com/2007/11/09/100-greatest-japanese-rock-albums/)
+- [Japrocksampler.](https://web.archive.org/web/20201129185812/http://www.japrocksampler.com/)
 - [ジャパニーズHIP-HOPの歴史年表。](http://hiphopflava.net/article_histry_japanese.php)
 - [Japan Rockology.](http://japanrockology.wordpress.com/)
-- [ZB's A-Z of J-Music.](http://www.zbsatozofjmusic.com/)
+- [ZB's A-Z of J-Music.](http://web.archive.org/web/20140529112103/http://www.zbsatozofjmusic.com/)
