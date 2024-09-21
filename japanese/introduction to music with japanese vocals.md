@@ -1,8 +1,8 @@
 # Introduction to music with Japanese vocals
 
-Japanese music with Japanese vocals. Albums, sorted by genre and in reverse chronological order.
+Japanese music with Japanese vocals. Albums, organized by general genre and in reverse chronological order.
 
-Click 🎧 next to an album to hear a sample (many links broken—apologies). I like and recommend everything here listed, but ⭐️ indicates my personal top picks.
+Click 🎧 next to an album to hear a sample (let me know if you find a broken link). I like and recommend everything here listed, but ⭐️ indicates my personal top picks.
 
 ## Rock
 
